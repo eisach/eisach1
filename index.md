@@ -15,4 +15,4 @@ Please tell me what you think.
 
 [Google](https://google.com/)
 
-https://commonmark.org/help/images/favicon.png
+https://giphy.com/gifs/jake-gyllenhaal-bye-kaBU6pgv0OsPHz2yxy
